@@ -1,4 +1,4 @@
-Hi, I’m @qteeaa and i'm cutie ^-^
+Hi, I'm cutie ^-^
 
 <!---
 qteeaa/qteeaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
